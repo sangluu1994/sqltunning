@@ -1,1 +1,1 @@
-Em gửi bài tập 1 dưới dạng ảnh chụp màn hình nhé thầy!
+Em gửi bài tập 1, 2 dưới dạng ảnh chụp màn hình nhé thầy!
